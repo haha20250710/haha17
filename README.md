@@ -10,4 +10,4 @@
 
 本平台提供亚洲中文字幕一区二区不卡相关高清视频资源，涵盖色噜噜日韩精品欧美一区二区和毛少妇的性视频等多样内容，支持流畅播放体验，满足用户多样化需求。
 
-<span style="display:none;">[Canonical link]()</span>
+<span style="display:none;">[Canonical link](https://github.com/haha20250710/haha17)</span>
